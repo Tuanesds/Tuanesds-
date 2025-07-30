@@ -1,4 +1,4 @@
-# Tuanesds-
+# Tuanesds
 ## 👋 Olá, eu sou Tuane!
 
 🎯 **Tech Recruiter especializada em conectar talentos de verdade a oportunidades que fazem sentido.**  
